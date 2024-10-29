@@ -9,4 +9,4 @@ Aqui estão algumas ideias para você começar:
 - 📫 Como entrar em contato comigo: ![instagram](instagram.com/caitanoxs)
 - 😄 Pronomes: ele/dele
 👺
-![](https://tenor.com/pt-BR/view/thurston-waffles-meow-scream-glowing-eyes-cat-gif-15740056)
+![](https://media1.tenor.com/m/bQuWIFsZWEgAAAAd/thurston-waffles-meow.gif)
